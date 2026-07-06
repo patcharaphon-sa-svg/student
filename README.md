@@ -1,6 +1,6 @@
 
 
 
-Patcharaphon Sathapitanon
+
 0568604050XXX
 คาดหวังที่จะได้เรียนรู้การใช้งาน GitHub มากขึ้น
